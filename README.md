@@ -10,6 +10,6 @@ https://imgur.com/a/FroLtEc
 (CK) Bacon boi (clrs)
 
 https://imgur.com/a/EpwFTfq
-cookiezi with long pink trail instead
+
 
 ![cookiezi with long pink trail instead](https://i.imgur.com/rQnvfJP.jpeg)
