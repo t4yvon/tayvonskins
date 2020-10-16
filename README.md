@@ -14,3 +14,6 @@ https://imgur.com/a/EpwFTfq
 
 # [(CK) Bacon boi (clrs)](https://drive.google.com/file/d/1tzAbVMRESzAv24D8V2sOhcJXS4zYa1bH/view?usp=sharing)
 ![](https://i.imgur.com/a4VP0a5.jpg)
+
+# [Cookiezi with long pink trail instead](https://drive.google.com/file/d/1tzAbVMRESzAv24D8V2sOhcJXS4zYa1bH/view?usp=sharing)
+![](https://i.imgur.com/rQnvfJP.jpeg)
