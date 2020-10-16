@@ -11,3 +11,5 @@ https://imgur.com/a/FroLtEc
 
 https://imgur.com/a/EpwFTfq
 cookiezi with long pink trail instead
+
+![cookiezi with long pink trail instead](https://imgur.com/a/EpwFTfq)
